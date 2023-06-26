@@ -1,0 +1,1 @@
+PlanetScale password :- pscale_pw_iqrhqj47xjboe1xcnldno4oh-60txbw5_zno2bybgtq19
